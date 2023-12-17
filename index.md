@@ -1,5 +1,3 @@
-# Tarot Marsella: Descubre el Camino de la Videncia 🔮
-
 En el fascinante universo del esoterismo, el **Tarot Marsella** se erige como una poderosa herramienta para explorar el futuro y desentrañar los misterios que nos depara. ¿Estás listo para embarcarte en un viaje de autoconocimiento y revelaciones? ¡Bienvenido al mundo del Tarot Marsella!
 
 ## Descubre Tu Destino con Tarot Marsella 🌟
